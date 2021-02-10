@@ -1,0 +1,1 @@
+# -ITbootcamp-workshop---manual-testing-Adobe-app
